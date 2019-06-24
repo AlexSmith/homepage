@@ -2,6 +2,7 @@
 
 (under construction)
 
-you can contact me 
-alexsmith thisTextIsHereToStopBotsJustUseAtSignInstead gmail doot com
+you can contact me at
+
+alexsmith strudel symbol gmail full point com
 
