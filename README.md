@@ -4,5 +4,5 @@
 
 you can contact me at
 
-alexsmith strudel symbol gmail full point com
+alexsmith strudel symbol live full point com
 
