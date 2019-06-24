@@ -2,3 +2,6 @@
 
 (under construction)
 
+you can contact me 
+alexsmith thisTextIsHereToStopBotsJustUseAtSignInstead gmail doot com
+
