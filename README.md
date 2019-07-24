@@ -8,15 +8,3 @@ alexsmith strudel symbol live full point com
 
 "Strudel symbol" = @
 "full point" = .
-
-
-
-
-
-
-
-
-
-
-
-Hi Em <3
