@@ -4,7 +4,7 @@
 
 you can contact me at
 
-alexsmith strudel symbol live full point com
+alexsmith strudel symbol live full point ie
 
 "Strudel symbol" = @
 "full point" = .
